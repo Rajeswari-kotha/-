@@ -7,3 +7,5 @@ The project was focused to analyze trends/pattern in the three apparently indepe
 looking for relations between them & provide insights & recommendations to the Government of Telangana for sustainable growth & development
 
 During this project, I have gained valuable insights into various aspects. I've developed a deeper understanding of government policies and their future implications. 
+
+[Uploading Untitled design.pdf…]()
