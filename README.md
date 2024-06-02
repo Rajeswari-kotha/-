@@ -8,6 +8,8 @@ looking for relations between them & provide insights & recommendations to the G
 
 During this project, I have gained valuable insights into various aspects. I've developed a deeper understanding of government policies and their future implications. 
 
+![Screenshot 2024-06-02 124315](https://github.com/Rajeswari-kotha/-/assets/162559903/a21f8dee-7d6b-4f28-9cc0-f698dca3b362)
+
 ![Screenshot 2024-06-02 124333](https://github.com/Rajeswari-kotha/-/assets/162559903/7a1446b2-88c5-47b0-b545-cec209d4a146)
 
 
